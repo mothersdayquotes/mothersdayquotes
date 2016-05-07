@@ -1,2 +1,0 @@
-# mothersdayquotes
-Mothers Day Quotes
